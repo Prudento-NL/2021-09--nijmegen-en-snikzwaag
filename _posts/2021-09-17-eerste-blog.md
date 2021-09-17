@@ -12,7 +12,7 @@ Vliegen naar een warme bestemming is voor ons geen optie omdat het [coronavirus]
 
 Een hotel of huisje in het buitenland zou een optie zijn, maar ook dan ben je weer gebonden aan de lokale coronamaatregelen die niet altijd even aantrekkelijk zijn.  
 
-De beste keuze voor ons op dit momenet is in [Nederland](https://nl.wikipedia.org/wiki/Nederland) te blijven.  
+De beste keuze voor ons op dit moment is in [Nederland](https://nl.wikipedia.org/wiki/Nederland) te blijven.  
 
 We hebben het afgelopen weekend de reserveringen gedaan. We zijn op beide lokaties al eerder geweest, dus we weten wat we ongeveer kunnen verwachten en dat de kwaliteit goed is.  
 Van 23 t/m 26 september gaan we naar het hotel [van der Valk Nijmegen-Lent](https://www.valknijmegen.nl).  
